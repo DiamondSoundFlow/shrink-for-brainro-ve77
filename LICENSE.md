@@ -1,4 +1,4 @@
-
+rare Script for shrink for brainrots is the best shrink for brainrots Script, featuring auto-collect and auto-farm. Safe and powerful for all your
 
 
 
